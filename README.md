@@ -1,2 +1,7 @@
 # hello-world
-first try in github
+
+Hi guys bro
+
+fresh tries goes on.
+
+Gokhan was here!!!
